@@ -1,1 +1,0 @@
-# mineg.github.io
